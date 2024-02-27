@@ -6,3 +6,4 @@ loreamfagjahahlajl
 ghjgajkgajhhjjujkgag
 ahahhcanbncjajfahjfhjajafha
 gagahabadhsashashh
+ini merupakan testing 2
